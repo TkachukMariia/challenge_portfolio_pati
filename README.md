@@ -9,4 +9,4 @@ I am glad that I found Dare IT and have the opportunity to participate in an inc
 My expectations from the project are to gain knowledge and get a chance to complete an internship in a company with
 experienced colleagues and further cooperation.
 
-Have a nice day!
+Have a nice day!!!
